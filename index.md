@@ -11,3 +11,6 @@ I learned all the basic financial wisdom and virtues from him. His Swabian thrif
 > Leute, die Geld ausgeben, verstehen nichts von den wahren Freuden 
 > eines Kapitalisten.
 
+<img src="https://i.pinimg.com/236x/30/57/f6/3057f69f980fae56276eddf36b038e21--pixel-donald-duck.jpg"/>
+
+
